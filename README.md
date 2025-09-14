@@ -5,7 +5,7 @@
 - 📫 How to reach me: write something on this respitory's Discussions
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am better than Script kiddie but not one
-  
+  [Useful Link](https://google.com/)
 
 <!---
 Hi :D
