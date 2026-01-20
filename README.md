@@ -7,6 +7,7 @@
 - ⚡ Fun fact: I am better than Script kiddie but not one
 
   [Useful Google Link](https://share.google/ijDqQy3QSLeYNAMFz)
+  [GD?](https://iliashdz.github.io/GDRWeb/)
 
 <!---
 Hi :D
