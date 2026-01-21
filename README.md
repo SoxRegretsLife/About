@@ -6,7 +6,7 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am better than Script kiddie but not one
 
-  [Useful Google Link](https://share.google/ijDqQy3QSLeYNAMFz)
+  [Useful Google Link](https://google.com)
  
 
 <!---
